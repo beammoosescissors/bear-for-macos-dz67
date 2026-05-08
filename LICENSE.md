@@ -1,4 +1,4 @@
-
+Bear for macOS elite Script - custom shortcuts and AI assistant is the best Bear for macOS script, featuring custom shortcuts and AI assistant. Safe, efficient, and optimized for
 
 
 
